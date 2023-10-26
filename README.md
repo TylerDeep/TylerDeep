@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **tylerdepe@csu.fullerton.edu**
 
-- ⚡ Fun fact **I am play chess and rugby.**
+- ⚡ Fun fact **I play chess and rugby.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
